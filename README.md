@@ -1,2 +1,2 @@
 # My_PortFolio
-My personal portfolio showcasing my projects and skills
+My professional portfolio showcasing my projects and skills
